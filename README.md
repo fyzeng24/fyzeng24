@@ -6,6 +6,6 @@
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: My mbti changed from INTJ to ENFP during undergrad
 
-- Email: e1221565@u.nus.edu
-- LinkedIn: https://www.linkedin.com/in/zeng-fanyi/
+- 📧 Email: e1221565@u.nus.edu
+- 🔗 LinkedIn: https://www.linkedin.com/in/zeng-fanyi/
 
